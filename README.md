@@ -1,1 +1,0 @@
-# ParcialAppsMoviles-Ceresol-Genaro
